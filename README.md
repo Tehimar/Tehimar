@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programing
 - 🌱 I’m currently learning Web design
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ... no way
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: my name is morad
 
